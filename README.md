@@ -1,16 +1,13 @@
-## Hi there 👋
+## SOU EU DE NOVOOOO🦬🐅🦕🦧🦍
+_é a expressão que serve para descrever um conjunto de ideias ou atitudes que fazem parte da vida de um indivíduo ou grupo_
 
-<!--
-**PKK9000/PKK9000** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+OI SOU WELINGTON DO 1MKT
 
-Here are some ideas to get you started:
+![](https://montink.s3.amazonaws.com/perfil_montink/169041058964c19e5dba638.png)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+lopes.welington@escola.pr.gov.br
+
+
+
+
+
